@@ -1,1 +1,1 @@
-# animated-enigma
+Notas rápidas de mi experiencia con likes para X. Lo bueno: puedes elegir la calidad que prefieras, los precios no asustan y el servicio se pone en marcha enseguida. Lo tranquilizador: hay garantía. Yo lo pedí aquí https://es.mrpopular.net/?category=socialnetworks&type=Twitter&service=likes y no tuve queja. Mi consejo es empezar con algo pequeño, ver cómo responde tu cuenta y decidir después. A mí me dio buena confianza.# animated-enigma
